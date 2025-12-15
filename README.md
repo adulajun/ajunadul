@@ -1,0 +1,2 @@
+# ajunadul
+mencoba lebih baik
